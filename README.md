@@ -1,1 +1,1 @@
-# Verabl-reasoning
+# Verbal-reasoning
